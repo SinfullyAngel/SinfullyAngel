@@ -1,5 +1,5 @@
 ## ˏˋ°•*⁀➷˚ ༘♡ ⋆｡˚ .ೃ࿐
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Kameron&duration=3000&pause=200&color=0A1045&width=435&lines=I+Can+Fix+All;Those+Lies+,;Oh+Baby+Baby;I+Run+But+Im;Running+To+You+.;You+Wont+See+Me;Cry+Im+Hiding+Inside;My+heart+is;in+pain+but+Im;smiling+for+you;Oh+baby;Ill+try+to+make;the+things+right;I+need+you+more;than+air+when+Im;not+with+you;Please+dont+ask+me;why+,+just;kiss+me+this+time;My+only+dream+is;about+you+and+I)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Kameron&duration=2000&pause=100&color=0A1045&width=435&lines=I+Can+Fix+All;Those+Lies+,;Oh+Baby+Baby;I+Run+But+Im;Running+To+You+.;You+Wont+See+Me;Cry+Im+Hiding+Inside;My+heart+is;in+pain+but+Im;smiling+for+you;Oh+baby;Ill+try+to+make;the+things+right;I+need+you+more;than+air+when+Im;not+with+you;Please+dont+ask+me;why+,+just;kiss+me+this+time;My+only+dream+is;about+you+and+I)](https://git.io/typing-svg)
 
 
 
