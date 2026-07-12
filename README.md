@@ -1,6 +1,6 @@
 ## ˏˋ°•*⁀➷˚ ༘♡ ⋆｡˚ .ೃ࿐
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Kameron&duration=3000&pause=300&color=0A1045&width=435&lines=Who+Am+I+Supposed+To+Please+?font=Kameron&duration=3000&pause=300&color=ED254E&width=435&lines=Who+Am+I+Supposed+To+Please+?;Who+Am+I+?)](https://git.io/typing-svg)
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Kameron&duration=3000&pause=300&color=0A1045&width=435&lines=Who+Am+I+Supposed+To+Please+?)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Kameron&duration=3000&pause=300&color=0A1045&width=435&lines=Who+Am+I+Supposed+To+Please+?;Who+Am+I+Supposed+To+Please+?;Who+Am+I+?)](https://git.io/typing-svg)
 <img width="300" height="300" alt="Untitled31_20260711133231" src="https://github.com/SinfullyAngel/Hi/blob/ae1adaf98c4c33e5b147ed05dff919591fb65853/Untitled31_20260711133231.png" />
 ᝰ.ᐟ๋࣭⭑🚬 (•_- )
 <img width="640" height="640" alt="Untitled32" src="https://github.com/SinfullyAngel/Hi/blob/58af197daefa0b28fbcf3c1ee8916b6462d46837/Untitled32%20(1).gif" />
