@@ -1,5 +1,5 @@
 ## ˏˋ°•*⁀➷˚ ༘♡ ⋆｡˚ .ೃ࿐
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Kameron&duration=4000&pause=50&color=0A1045&width=435&lines=Who+Am+I+Supposed+To+Please+?;Who+Am+I+Supposed+To+Please+?;Who;Am;I+?)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Kameron&duration=2000&pause=50&color=0A1045&width=435&lines=Who+Am+I+Supposed+To+Please+?;Who+Am+I+Supposed+To+Please+?;Who;Am;I+?)](https://git.io/typing-svg)
 
 
 <img width="300" height="300" alt="Untitled31_20260711133231" src="https://github.com/SinfullyAngel/Hi/blob/ae1adaf98c4c33e5b147ed05dff919591fb65853/Untitled31_20260711133231.png" />
