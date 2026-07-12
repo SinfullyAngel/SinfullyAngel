@@ -1,5 +1,5 @@
 ## ˏˋ°•*⁀➷˚ ༘♡ ⋆｡˚ .ೃ࿐
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Kameron&duration=3000&pause=300&color=0A1045&width=435&lines=Ｓｏ+ㅤ+ｓｉｃｋ;ｏｆ+ㅤ+ｔｈｅ;ｐａｒｔｙ+Ｎｏｂｏｄｙ+ㅤ+ｋｎｏｗｓ+ㅤ+ｎｏｂｏｄｙ+.;Ｓｏ+ㅤ+ｓｉｃｋ;+ｏｆ+ㅤ+ｔｈｅ+ㅤ+ＤＪ,;Ｓｏｍｅｏｎｅ+ㅤ+ｐｌｅａｓｅ+ㅤ+ｔｅｌｌ+ㅤ+ｔｈｅｍ;ｗｈａｔ+ㅤ+ｔｏ+ㅤ+ｐｌａｙ+.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Kameron&duration=3000&pause=300&color=0A1045&width=435&lines=Ｓｏ+ｓｉｃｋ;ｏｆ+ｔｈｅ+ｐａｒｔｙ+,;Ｎｏｂｏｄｙ+ｋｎｏｗｓ+ｎｏｂｏｄｙ+.;Ｓｏ+ｓｉｃｋ;+ｏｆ+ｔｈｅ+ＤＪ+,;Ｓｏｍｅｏｎｅ+ｐｌｅａｓｅ+ｔｅｌｌ+ｔｈｅｍ;ｗｈａｔ+ｔｏ+ｐｌａｙ+.)](https://git.io/typing-svg)
 
 
 
