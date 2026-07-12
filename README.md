@@ -1,5 +1,5 @@
 ## ˏˋ°•*⁀➷˚ ༘♡ ⋆｡˚ .ೃ࿐
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Kameron&duration=3000&pause=200&color=3D1308&width=435&lines=Please+dont+ask+me+why;Just+kiss+me+this+time;My+only+dream+is+about+you+and+I+.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Merriweather&duration=3000&pause=200&color=9F2042&width=435&lines=Please+dont+ask+me+why;Just+kiss+me+this+time;My+only+dream+is+about+you+and+I+.)](https://git.io/typing-svg)
 
 
 
