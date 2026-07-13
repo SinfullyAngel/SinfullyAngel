@@ -2,6 +2,8 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Merriweather&duration=3000&pause=200&color=9F2042&width=435&lines=Please+dont+ask+me+why;Just+kiss+me+this+time;My+only+dream+is+about+you+and+I+.)](https://git.io/typing-svg)
 
 zᶻ   ૮˶- ﻌ -˶ა⌒)ᦱ
+
+
 <img width="640" height="640" alt="Untitled94" src="https://github.com/SinfullyAngel/Hi/blob/146e97bed23eb528e99b8e383ea9c1683fd722e7/Untitled94%20(2).gif"/>
 
 
