@@ -1,7 +1,7 @@
 ## ˏˋ°•*⁀➷˚ ༘♡ ⋆｡˚ .ೃ࿐
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Merriweather&duration=3000&pause=200&color=9F2042&width=435&lines=Please+dont+ask+me+why;Just+kiss+me+this+time;My+only+dream+is+about+you+and+I+.)](https://git.io/typing-svg)
 
-
+@CY4N1D333-ANG3LZZZ <Main 
 
 
 <img width="300" height="300" alt="Untitled31_20260711133231" src="https://github.com/SinfullyAngel/Hi/blob/ae1adaf98c4c33e5b147ed05dff919591fb65853/Untitled31_20260711133231.png" />
