@@ -1,5 +1,5 @@
 ## ˏˋ°•*⁀➷˚ ༘♡ ⋆｡˚ .ೃ࿐
-[![Spotify](https://img.shields.io/badge/Listen%20on-Spotify-brightgreen)](https://open.spotify.com/track/7yOPE5LvpkynNqCk7nLEwl?si=b59345dca6fc4635)
+[![Spotify](https://spotify-github-profile.kittinanx.com/api/view?uid=YOUR_SPOTIFY_USER_ID&cover_image=true&theme=default)](https://open.spotify.com/user/31wfe6vlq537vmjjhymsfsgpwzca?si=deb46aafb2f74a29) 
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Merriweather&duration=3000&pause=200&color=9F2042&width=435&lines=Please+dont+ask+me+why;Just+kiss+me+this+time;My+only+dream+is+about+you+and+I+.)](https://git.io/typing-svg)
